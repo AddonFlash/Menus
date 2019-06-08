@@ -1,0 +1,4 @@
+llıllı[©ℍ𝕖𝕔𝕥𝕠𝕓𝕠®]ıllıllı
+Quiero Dejar Clara Una Cosa y es que a este señor no Le he copiado nada si no que le he preguntado unas cosas y el hay que decirlo muy amable me ha contestado pero nunca Le he querido copiar y nunca lo haré solo le he dicho que yo esa clase de contenido lo tengo en mi git ante todo dejar claro que no Le he copiado si no que el contenido es de webs normales que están en Internet y en sus respectivos servidores (streamango vidoza streamcloud etc) no veréis nunca ni una coma ni nada igual en eso que en el suyo porque( aunque ahora no se porque ha pasado esto cuando no te he copiado nada de hecho solo tengo 1 serie por ahora y de hecho era una prueba no salía de aquí pero tenía curiosidad y no es tuyo si no de una web muy conocida) te has comportado muy bien
+
+Lo dicho a este señor no Le he copiado nada y nunca lo haré
